@@ -1,1 +1,1 @@
-# Dinesh-Chandimal
+# Dinesh Chandimal
